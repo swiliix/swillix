@@ -2,7 +2,7 @@
 
 ![](https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj)
 
-[strawpage](https://swiliixs.straw.page/) + [atabook](https://atabook.org/) + [pronouns.page](https://en.pronouns.page/@swiliix)
+[strawpage](https://swiliixs.straw.page/) + [pronouns.page](https://en.pronouns.page/@swiliix)
 
 
 <p align="center">
