@@ -15,7 +15,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mu8srrxfguvsgwzmvp9ik2w0s&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=mu8srrxfguvsgwzmvp9ik2w0s&redirect=true)
 
-  layout by [yuriclowns](https://github.com/yuriclown)
+  layout by [yuriclowns](https://github.com/yuriclown) !
 
 
 ![](https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj)
