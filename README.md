@@ -6,7 +6,7 @@
 
 attack my [ARTFIGHT](https://artfight.net/~swiliix)!!!
 
-dni : basic dni criteria , proshippers , israel supporters
+dni : basic dni criteria , proship/profic , israel supporters
 
 <p align="center">
   <img src="https://64.media.tumblr.com/bdbd12075f5c57b6993c48d2155cd665/a7e6df3bb37ce7ec-cb/s400x600/683b273bd8f426c1545540f51dbccb520f602954.gifv" width="400"/>
